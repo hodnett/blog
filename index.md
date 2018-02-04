@@ -2,11 +2,13 @@
 
 ## In Progress
 
-Marty Cagon. [Inspired: How to Create Tech Products Customers Love](http://a.co/cqp68wd), 2nd ed. (Wiley).
-
 Duana Welch. [Love Factually: 10 Proven Steps from I Wish to I Do](http://a.co/4bQNQqA) (Love Science Media)
 
 ## Completed
+
+### February 3, 2018
+
+Marty Cagon. [Inspired: How to Create Tech Products Customers Love](http://a.co/cqp68wd), 2nd ed. (Wiley).
 
 ### December 27, 2017
 
