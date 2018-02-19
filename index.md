@@ -2,9 +2,11 @@
 
 ## In Progress
 
-Timothy Hallinan. [Fields Where They Lay (A Junior Bender Mystery)](http://a.co/8krn4Xi), Reprint edition (Soho Crime).
-
 ## Completed
+
+### February 16, 2018
+
+Timothy Hallinan. [Fields Where They Lay (A Junior Bender Mystery)](http://a.co/8krn4Xi), Reprint edition (Soho Crime).
 
 ### February 10, 2018
 
