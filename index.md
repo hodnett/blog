@@ -4,6 +4,10 @@
 
 ## Completed
 
+### February 28th, 2018
+
+Tim Urban. [The Elon Musk Blog Series: Wait But Why](http://a.co/ez0HWbo) (Lioncrest Publishing).
+
 ### February 16, 2018
 
 Timothy Hallinan. [Fields Where They Lay (A Junior Bender Mystery)](http://a.co/8krn4Xi), Reprint edition (Soho Crime).
