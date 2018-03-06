@@ -2,6 +2,8 @@
 
 ## In Progress
 
+Cixin Liu and Ken Liu. [The Three-Body Problem](http://a.co/hF6BAXQ) (Tor Books).
+
 ## Completed
 
 ### February 28th, 2018
