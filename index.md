@@ -2,9 +2,13 @@
 
 ## In Progress
 
-Cixin Liu and Ken Liu. [The Three-Body Problem](http://a.co/hF6BAXQ) (Tor Books).
+Jocelyn K. Glei. [Unsubscribe: How to kill Email Anxiety, Avoid Distractions and Get Real Work Done](http://a.co/aVkMfy1), 1 edition (Public Affairs).
 
 ## Completed
+
+### March 7th, 2018
+
+Cixin Liu and Ken Liu. [The Three-Body Problem](http://a.co/hF6BAXQ) (Tor Books).
 
 ### February 28th, 2018
 
