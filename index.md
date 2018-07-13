@@ -1,6 +1,6 @@
 ---
 layout: home
-image: /assets/lucas-gallone-108793-unsplash.jpg
+image: /assets/lucas-gallone-108793-unsplash-1600x600.jpg
 ---
 David's [Goodreads profile](https://www.goodreads.com/user/show/78176225-david).
 
